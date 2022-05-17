@@ -7,6 +7,7 @@
 	- ## About me
 
 		- Hi! I'm Santiago, IT Americas / Data & Analytics Manager. My pronouns are he/they, meaning that you can refer to me as “he/his” or as “they/them” depending on your personal preference.
+		- You can call me "Santi" or "San".
 		- I am Argentine, I have never had the opportunity to live in another country (...yet, I am not closed to moving). [Buenos Aires](https://goo.gl/maps/QosYtGbMf3FmxVDM8) is the city where I live rigth now and it is a beautiful city!
 		- I really enjoy playing with my three children, my daughter (the princess of the house), and the twins (the bodyguards), who turned my life around, my priorities, teach me and surprise me every day.
 		- I recently rediscovered skiing (thanks to my friends) and it really is something I really enjoy. Being in the middle of the mountain, enjoying the view, feeling the wind and the snow under my feet, really connects me with nature and at the same time disconnects me from all the city and mental noise.
